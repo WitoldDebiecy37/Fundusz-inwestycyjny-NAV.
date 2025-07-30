@@ -4,3 +4,4 @@ Nav to zamyka pdobno sklepy lotto i meiliny mops i nie ma sklepów. Nav jest jak
 W Nav pracuje specjaliści dr inżynier porfesor oni robią problemy hazardowi pilnują ludzi lekarze ze szpitala. 
 Plusy nav to emerytury z 3 filaru funduszu inwestycjnego rzędów 100 000 zł co miesiąc na głowe czy socjalu.  
 Jak ktoś do nich zadzwoni to nawet mogą się pozbyć Policji, Milicji, Ochrony i mops. To prywatna armia walcząca ze złem oni są jak Marvel. 
+Oni są źli dla rodzin co palą i piją i coś wąchają. Nav jest za abstynecją. U nich nie ma AAA jest kara śmierci lub amputacje. 
